@@ -77,3 +77,8 @@ Would you like this as a specific genre? Maybe blues, country, or rock?
 # Why are you greedy high school kids keep interfernec with Science?
 
 # Why are you greedy high school kids keep interfernec with Science?
+
+
+You think FBI going to hire you because you are legitmate hacker that turns whitehat? 
+
+Those are myths.
