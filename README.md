@@ -82,3 +82,5 @@ Would you like this as a specific genre? Maybe blues, country, or rock?
 You think FBI going to hire you because you are legitmate hacker that turns whitehat? 
 
 Those are myths.
+
+Oh you think i deserve get hackd or someone one else was the hacker not you and you both were hacking!
